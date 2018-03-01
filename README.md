@@ -1,1 +1,1 @@
-# lab-5-sem-2
+# lab-5-and-6-sem-2
